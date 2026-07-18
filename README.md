@@ -5,7 +5,7 @@
 <img width="1280" height="142" alt="1000230168" src="https://github.com/user-attachments/assets/ed33d607-d94d-4900-bff0-d055db8c37ec" />
 
 
- ࣪ 　　 　　 　　 　　 　　 　　 　　 　　 　　⏔ 　　　　𝐚 𝐯𝐚𝐦𝐩𝐢𝐫𝐞’𝐬 𝐥𝐨𝐯𝐞 　　 　　ᛝ
+ ࣪ 　　 　　 　　 　　 　　 　　 　　⏔ 　　　　𝐚 𝐯𝐚𝐦𝐩𝐢𝐫𝐞’𝐬 𝐥𝐨𝐯𝐞 　　 　　ᛝ
 
 
 
